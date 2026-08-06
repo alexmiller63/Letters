@@ -89,3 +89,75 @@ There’s no rush, and it doesn’t have to be a dramatic event. Sometimes the s
 I’m listening.
 
 
+I can't say I can remember. Let's move on to the next question.
+
+
+That’s perfectly fine. In fact, I’d rather have ten authentic stories than force one that isn’t there.
+
+Here’s the next question:
+
+Think of a time when Sarah surprised you.
+
+Not by doing something extraordinary, but by revealing a quality you didn’t expect. It could be a hidden talent, exceptional judgment, unexpected maturity, a funny moment, or something that made you say, “I didn’t know she could do that.”
+
+What’s the first thing that comes to mind?
+
+
+Yeah, I remember when she was in high school, she would always dress the same way to go to school. And she always wore her hair the same way. And she said she didn't really make friends much in high school, and we'll probably leave that out. But anyway, she, some girls that befriended her in high school decided to give her a makeover and gave her a blouse to wear and gave her makeup and did her hair. And when she came home, she looked bright and amazing. So I photographed her with my camera.
+
+
+That’s a nice story, and I think the strength of it isn’t really the makeover itself. It’s what it says about Sarah.
+
+What I take from it is that she was modest and unpretentious. She wasn’t focused on appearance, but when her friends wanted to do something kind for her, she accepted it with good humor. The fact that you were struck enough to photograph her tells me it was a genuinely memorable moment.
+
+I’d probably preserve it like this:
+
+Sarah was always very modest about her appearance. In high school she tended to dress the same way every day and wasn’t especially interested in fashion. A few girls who had become friends with her decided to surprise her with a makeover. They lent her a blouse, did her hair, and helped with her makeup. When she came home, I was genuinely amazed by the transformation. She looked bright and confident, and I immediately reached for my camera and took her picture. What I remember most wasn’t the makeover itself, but that Sarah accepted the kindness of her friends with grace. It was a warm, genuine moment.
+
+I don’t know that this story would necessarily make it into the final recommendation letter, but it’s definitely worth preserving because it adds another dimension to your memories of her.
+
+Here’s the next question:
+
+What is something Sarah did repeatedly—not just once—that made you think, “That’s just who she is”? In other words, I’m looking for a pattern rather than a single event.
+
+
+Hello, Heather. Hello, Heather.
+
+
+I’m here, Alexander.
+
+We were in the middle of Sarah’s interview. The last question was about a pattern rather than a single event:
+
+What’s something Sarah did consistently that made you think, “That’s just who she is”?
+
+Take your time. I’m listening.
+
+
+Okay, I got the question you asked me. I had a phone call. And so you were asking me something she did repeatedly that told me something about her. Yes, Sarah has a wonderful way of saying an answer with extremely few words. She is a person who will answer, yes, and not say anything else. Or if more words are required, she will answer with, like if the question, let me think of a good question. If you ask her how you're feeling, she just says, I am fine. She's a person of, she's a pecuniary speaker. And it's very pleasant.
+
+
+I like that observation because it’s about a consistent trait, and it’s distinctive.
+
+One small point, though: I think the word you were looking for is “laconic” or “terse,” not “pecuniary.” “Pecuniary” relates to money. A laconic person uses very few words, often in a calm, thoughtful way.
+
+What I hear you saying is something like this:
+
+Sarah consistently communicates with very few words. She doesn’t talk just to fill silence. If you ask her a question, she’ll answer it directly and simply. For example, if you ask how she’s feeling, she’ll just say, “I’m fine,” without adding unnecessary details. I found that refreshing. Her quiet, straightforward communication gives her a calm presence that people are comfortable around.
+
+That’s a useful trait to preserve because it helps someone reading the interview understand her personality.
+
+One question, though. When Sarah is around children, does she stay equally quiet, or does she become more expressive and engaging? That answer could be important for the recommendation letter.
+
+
+I can't hear you.
+
+
+No problem. I’ll keep it short.
+
+I think the word you meant is “laconic,” not “pecuniary.” “Laconic” means someone who speaks in very few words.
+
+So here’s the next question:
+
+When Sarah is around children, is she still quiet, or does she become more talkative and playful? If you’ve seen her interact with children, tell me about that. If you haven’t, that’s okay too.
+
+
