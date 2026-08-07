@@ -6,11 +6,11 @@ When you asked me to recommend individuals for this year’s Santa team, Sarah M
 
 I did not intend to write a typical recommendation letter. Instead, I would like to share my experience working with Sarah.
 
-Sarah is quiet and reserved. She is somewhat laconic in her communication. If asked how she is doing, she will typically respond simply, “I’m fine,” and little more. She is not someone who seeks attention or speaks at length, but I have learned that her character is best understood through her actions rather than her words.
+Sarah is quiet and reserved. She is somewhat laconic (a person of few words) in her communication. If asked how she is doing, she will typically respond simply, “I’m fine,” and little more. If you want to understand Sarah, don’t pay attention to how much she says. Pay attention to what she does.
 
 On one occasion, I encountered Sarah walking home carrying a large potted floral arrangement. She had previously worked for a florist and developed a strong skill in floral design. When I asked about the arrangement, she simply said, “Happy birthday.” What stood out was not the gift itself, but the thoughtfulness behind it. She consistently invests her time and abilities in ways that meaningfully support others, without drawing attention to herself.
 
-I also recall observing a different side of Sarah in her interactions with animals. While she is typically reserved in professional settings, she is notably warm and expressive with pets. With our two cats, Gremlin and Elf, she would speak to them patiently and attentively, demonstrating a calm and nurturing presence.
+I also recall observing a different side of Sarah in her interactions with animals. While she is typically laconic with people, with her two cats, Gremlin and Elf, she can become almost garrulous (very talkative). She speaks to them patiently and attentively, and they bring out a warm and expressive side of her that people do not ordinarily see.
 
 Sarah is also composed and direct when situations require clear action. In a busy work environment, I observed her ability to maintain appropriate boundaries and address disruptions in a calm and professional manner, without escalating tension or creating unnecessary conflict. She demonstrates sound judgment in managing interpersonal situations.
 
