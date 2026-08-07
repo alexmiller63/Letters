@@ -86,6 +86,8 @@ One of Cindy’s strongest qualities is her persistence. I know this from direct
 
 Instacart is intensely frustrating work. Items aren’t where they are supposed to be. They don’t give clear instructions. They don’t answer their phones. Cindy deals with all of that, gets the shopping done, delivers it to the customer, and gets good reviews. When I think about the long days and relentless lines that can come with Christmas work, that experience means something to me.
 
+I’ve also seen Cindy around many of her nieces and nephews, where she is very much the friendly aunt. At the other end of the age spectrum, I’ve watched elderly people become comfortable enough with her to tell her remarkably personal stories. One elderly person confided in her about having been a prisoner of war in a Japanese prison camp. Cindy has a way of being warm when warmth is needed.
+
 One Christmas Eve, about four hours before the end of the day, the power went out throughout the entire mall. We were all tired, and for about ten minutes we struggled to figure out what to do. We didn’t know when the power would come back on, and without power our camera and normal system were useless.
 
 Then one of the parents pointed out something we had missed. The families didn’t care whether our camera worked. They didn’t even care about the photographs they had already paid for. What they cared about was Santa.
@@ -95,8 +97,6 @@ The parent was absolutely right.
 We started letting families take their pictures with Santa using their own cell phones and gave them the number to call for refunds on the photographs they had already purchased. Our sixteen-year-old helpers handled the phones. Whether someone handed them an Android or an iPhone, they knew what to do.
 
 I believe Cindy would have understood the lesson immediately. When the line finally died down, she would have told the sixteen-year-olds, “Remember this when you go on to your other jobs. This is what good customer service looks like.”
-
-I’ve also seen Cindy around many of her nieces and nephews, where she is very much the friendly aunt. At the other end of the age spectrum, I’ve watched elderly people become comfortable enough with her to tell her remarkably personal stories. One elderly person confided in her about having been a prisoner of war in a Japanese prison camp. Cindy has a way of being warm when warmth is needed.
 
 And there is one other reason I think Cindy belongs around Santa.
 
