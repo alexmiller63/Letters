@@ -12,15 +12,16 @@ On one occasion, I encountered Sarah walking home carrying a large potted floral
 
 I also recall observing a different side of Sarah in her interactions with animals. While she is typically laconic with people, with her two cats, Gremlin and Elf, she can become almost garrulous (very talkative). She speaks to them patiently and attentively, and they bring out a warm and expressive side of her that people do not ordinarily see.
 
+Sarah also has a remarkably dark, deadpan sense of humor. Yesterday was her birthday. When I asked how she was celebrating, she said, “I’m celebrating not being scrapped off pavement or scooped out of a river.” That is very much Sarah: few words, carefully chosen.
+
 Sarah is also composed and direct when situations require clear action. In a busy work environment, I observed her ability to maintain appropriate boundaries and address disruptions in a calm and professional manner, without escalating tension or creating unnecessary conflict. She demonstrates sound judgment in managing interpersonal situations.
 
 She is also attentive to the well-being of those around her. She consistently ensures that others take appropriate breaks and maintains awareness of team needs throughout the day. Her approach is practical and considerate, and she communicates in a way that is clear and respectful.
 
-In addition, Sarah has experience supporting younger team members in administrative and logistical matters. She is approachable and provides assistance in a way that is straightforward and non-intimidating, which makes her a reliable point of contact for individuals who may need guidance.
+One thing I remember from my own Santa team is that some of our helpers were 16 years old. For many of them, this was their first job, and things such as setting up direct deposit and completing Cherry Hill paperwork could be surprisingly difficult. Sarah would be very good at helping a young employee work through those practical details. She is approachable, straightforward, and not intimidating, which is exactly what someone in their first job may need when they do not know how to do something.
 
 For these reasons, I believe Sarah would be an excellent addition to a team environment. She brings a combination of discretion, reliability, and interpersonal awareness that contributes to a positive and well-functioning workplace. She is steady, thoughtful, and effective in both routine responsibilities and situations that require judgment.
 
 If Sarah had been part of my team last year, I believe she would have contributed meaningfully to its overall success.
 
 Santa Alex
-
