@@ -10,7 +10,7 @@ Sarah is quiet and reserved. She is somewhat laconic (a person of few words) in 
 
 On one occasion, I encountered Sarah walking home carrying a large potted floral arrangement. She had previously worked for a florist and developed a strong skill in floral design. When I asked about the arrangement, she simply said, “Happy birthday.” What stood out was not the gift itself, but the thoughtfulness behind it. She consistently invests her time and abilities in ways that meaningfully support others, without drawing attention to herself.
 
-I also recall observing a different side of Sarah in her interactions with animals. While she is typically laconic with people, with her two cats, Gremlin and Elf, she can become almost garrulous (very talkative). She speaks to them patiently and attentively, and they bring out a warm and expressive side of her that people do not ordinarily see.
+I also recall observing a different side of Sarah in her interactions with animals. While she was typically laconic with people, with her two cats, Gremlin and Elf, she became almost garrulous (very talkative). She carried on little conversations with them as though they understood every word.
 
 Sarah also has a remarkably dark, deadpan sense of humor. Yesterday was her birthday. When I asked how she was celebrating, she said, “I’m celebrating not being scrapped off pavement or scooped out of a river.” That is very much Sarah: few words, carefully chosen.
 
@@ -25,3 +25,4 @@ For these reasons, I believe Sarah would be an excellent addition to a team envi
 If Sarah had been part of my team last year, I believe she would have contributed meaningfully to its overall success.
 
 Santa Alex
+
