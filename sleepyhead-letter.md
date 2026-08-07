@@ -1,22 +1,26 @@
-Cindy Marcos — Letter of Recommendation
+# Sarah Morgeneier — Letter of Introduction
 
-Dear Tiffany,
+Tiffany,
 
-I’d like to recommend my friend Cindy Marcos for a position with the Santa Central team. I’ve known Cindy for a long time, and I know her much better than the other people I’ve recommended to you.
+When you asked me to recommend individuals for this year’s Santa team, Sarah Morgeneier was one of the first people who came to mind.
 
-Cindy has substantial customer-facing experience. She has worked as an Uber driver, an Instacart shopper, and as a hostess. Those are very different jobs, but they have something important in common: sooner or later, you have to deal with somebody who is extraordinarily angry about something. Cindy is very good at remaining professional and calm in those situations while also being clear about her boundaries.
+I did not intend to write a typical recommendation letter. Instead, I would like to share my experience working with Sarah.
 
-She is also very comfortable with everyday technology. She is familiar with devices such as Android phones and iPhones and uses them effectively. She also knows when she has reached the point where she needs help and is comfortable asking for it. That combination should make it relatively easy for her to learn the camera and other technology used at Santa Central.
+Sarah is quiet and reserved. She is somewhat laconic in her communication. If asked how she is doing, she will typically respond simply, “I’m fine,” and little more. She is not someone who seeks attention or speaks at length, but I have learned that her character is best understood through her actions rather than her words.
 
-One of Cindy’s strongest qualities is her persistence. I know this from direct comparison. I tried being an Instacart shopper myself. I lasted a week. Cindy has done it for months and months.
+On one occasion, I encountered Sarah walking home carrying a large potted floral arrangement. She had previously worked for a florist and developed a strong skill in floral design. When I asked about the arrangement, she simply said, “Happy birthday.” What stood out was not the gift itself, but the thoughtfulness behind it. She consistently invests her time and abilities in ways that meaningfully support others, without drawing attention to herself.
 
-Instacart is intensely frustrating work. Items aren’t where they are supposed to be. They don’t give clear instructions. They don’t answer their phones. Cindy deals with all of that, gets the shopping done, delivers it to the customer, and gets good reviews. When I think about the long days and relentless lines that can come with Christmas work, that experience means something to me.
+I also recall observing a different side of Sarah in her interactions with animals. While she is typically reserved in professional settings, she is notably warm and expressive with pets. With our two cats, Gremlin and Elf, she would speak to them patiently and attentively, demonstrating a calm and nurturing presence.
 
-I’ve also seen Cindy around many of her nieces and nephews, where she is very much the friendly aunt. At the other end of the age spectrum, I’ve watched elderly people become comfortable enough with her to tell her remarkably personal stories. One elderly person confided in her about having been a prisoner of war in a Japanese prison camp. Cindy has a way of being warm when warmth is needed.
+Sarah is also composed and direct when situations require clear action. In a busy work environment, I observed her ability to maintain appropriate boundaries and address disruptions in a calm and professional manner, without escalating tension or creating unnecessary conflict. She demonstrates sound judgment in managing interpersonal situations.
 
-And there is one other reason I think Cindy belongs around Santa.
+She is also attentive to the well-being of those around her. She consistently ensures that others take appropriate breaks and maintains awareness of team needs throughout the day. Her approach is practical and considerate, and she communicates in a way that is clear and respectful.
 
-I’ve known Cindy well for a long time, and I’m pretty sure she actually believes in Santa Claus. I don’t mean that as a joke. There is a part of her that takes the magic seriously, and I think that matters in this particular job.
+In addition, Sarah has experience supporting younger team members in administrative and logistical matters. She is approachable and provides assistance in a way that is straightforward and non-intimidating, which makes her a reliable point of contact for individuals who may need guidance.
+
+For these reasons, I believe Sarah would be an excellent addition to a team environment. She brings a combination of discretion, reliability, and interpersonal awareness that contributes to a positive and well-functioning workplace. She is steady, thoughtful, and effective in both routine responsibilities and situations that require judgment.
+
+If Sarah had been part of my team last year, I believe she would have contributed meaningfully to its overall success.
 
 Santa Alex
 
