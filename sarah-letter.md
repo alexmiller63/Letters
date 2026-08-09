@@ -14,8 +14,6 @@ I also recall observing a different side of Sarah in her interactions with anima
 
 Sarah is also direct and no-nonsense when a situation needs to be handled. During one busy Santa shift, a group of obnoxious teenage boys approached laughing and said, “Santa, please let me sit on your lap, it’s my lifelong dream.” I had to de-escalate the situation myself because I couldn’t get a manager’s attention. Sarah would have stepped in, established the boundary, and ended the disruption without turning it into a larger confrontation.
 
-She is also attentive to the well-being of those around her. She consistently ensures that others take appropriate breaks and maintains awareness of team needs throughout the day. Her approach is practical and considerate, and she communicates in a way that is clear and respectful.
-
 One thing I remember from my own Santa team is that some of our helpers were 16 years old. For many of them, this was their first job, and things such as setting up direct deposit and completing Cherry Hill paperwork could be surprisingly difficult. Sarah would be very good at helping a young employee work through those practical details. She is approachable, straightforward, and not intimidating, which is exactly what someone in their first job may need when they do not know how to do something.
 
 For these reasons, I believe Sarah would be an excellent addition to a team environment. She brings a combination of discretion, reliability, and interpersonal awareness that contributes to a positive and well-functioning workplace. She is steady, thoughtful, and effective in both routine responsibilities and situations that require judgment.
