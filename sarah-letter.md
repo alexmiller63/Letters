@@ -1,4 +1,4 @@
-# Sarah Morgeneier — Letter of Introduction
+Sarah Morgeneier — Letter of Introduction
 
 Tiffany,
 
@@ -12,7 +12,7 @@ Once, on my birthday, Sarah walked home carrying a large floral arrangement. Whe
 
 I also recall observing a different side of Sarah in her interactions with animals. While she was typically laconic with people, with her two cats, Gremlin and Elf, she became almost garrulous (very talkative). She carried on little conversations with them as though they understood every word.
 
-Sarah is also composed and direct when situations require clear action. In a busy work environment, I observed her ability to maintain appropriate boundaries and address disruptions in a calm and professional manner, without escalating tension or creating unnecessary conflict. She demonstrates sound judgment in managing interpersonal situations.
+Sarah is also direct and no-nonsense when a situation needs to be handled. During one busy Santa shift, a group of obnoxious teenage boys approached laughing and said, “Santa, please let me sit on your lap, it’s my lifelong dream.” I had to de-escalate the situation myself because I couldn’t get a manager’s attention. Sarah would have stepped in, established the boundary, and ended the disruption without turning it into a larger confrontation.
 
 She is also attentive to the well-being of those around her. She consistently ensures that others take appropriate breaks and maintains awareness of team needs throughout the day. Her approach is practical and considerate, and she communicates in a way that is clear and respectful.
 
@@ -23,3 +23,4 @@ For these reasons, I believe Sarah would be an excellent addition to a team envi
 If Sarah had been part of my team last year, I believe she would have contributed meaningfully to its overall success.
 
 Santa Alex
+
