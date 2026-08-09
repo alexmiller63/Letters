@@ -6,13 +6,11 @@ When you asked me to recommend individuals for this year’s Santa team, Sarah M
 
 I did not intend to write a typical recommendation letter. Instead, I would like to share my experience working with Sarah.
 
-Sarah is quiet and reserved. She is somewhat laconic (a person of few words) in her communication. If asked how she is doing, she will typically respond simply, “I’m fine,” and little more. If you want to understand Sarah, don’t pay attention to how much she says. Pay attention to what she does.
+Sarah is reserved. She is somewhat laconic (a person of few words) in her communication. If asked how she is doing, she will typically respond simply, “I’m fine,” and little more. If you want to understand Sarah, don’t pay attention to how much she says. Pay attention to what she does.
 
-On one occasion, I encountered Sarah walking home carrying a large potted floral arrangement. She had previously worked for a florist and developed a strong skill in floral design. When I asked about the arrangement, she simply said, “Happy birthday.” What stood out was not the gift itself, but the thoughtfulness behind it. She consistently invests her time and abilities in ways that meaningfully support others, without drawing attention to herself.
+Once, on my birthday, Sarah walked home carrying a large floral arrangement. When I asked about it, she simply said, “Happy birthday.” No one has ever bought me flowers before. What stood out was the thoughtfulness behind the gesture. She consistently does thoughtful things for others without drawing attention to herself.
 
 I also recall observing a different side of Sarah in her interactions with animals. While she was typically laconic with people, with her two cats, Gremlin and Elf, she became almost garrulous (very talkative). She carried on little conversations with them as though they understood every word.
-
-Sarah also has a remarkably dark, deadpan sense of humor. Yesterday was her birthday. When I asked how she was celebrating, she said, “I’m celebrating not being scrapped off pavement or scooped out of a river.” That is very much Sarah: few words, carefully chosen.
 
 Sarah is also composed and direct when situations require clear action. In a busy work environment, I observed her ability to maintain appropriate boundaries and address disruptions in a calm and professional manner, without escalating tension or creating unnecessary conflict. She demonstrates sound judgment in managing interpersonal situations.
 
@@ -25,4 +23,3 @@ For these reasons, I believe Sarah would be an excellent addition to a team envi
 If Sarah had been part of my team last year, I believe she would have contributed meaningfully to its overall success.
 
 Santa Alex
-
