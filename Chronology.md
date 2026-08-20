@@ -1,3 +1,353 @@
+CHRONOLOGY OF EVENTS
+
+Chronology of Events
+
+On or About May 3, 2026 — Medication Privacy
+
+Vince asked me what medications I was taking and what medical conditions they were for.
+
+I responded, “Why do you need to know?”
+
+Vince explained that he needed to know because, according to him, residents in the house sometimes failed to take their medications, went into the backyard, and “went crazy.”
+
+Although Vince gave this explanation, I remained uncomfortable discussing my private medical information.
+
+July 21, 2026 — Bathroom Soap Incident
+
+I told Vince, “The bathroom is out of soap.
+
+Vince responded, “Why are you talking to Valentine? You said, ‘Valentine, we’re out of soap.’”
+
+I replied, “No. I said, ‘The bathroom is out of soap.’”
+
+Vince then said, “Talk to me.”
+
+The conversation concluded with Vince saying, “That’s fine. I’ll take care of it.”
+
+Later, Valentine told me that I had never addressed him about the soap, confirming my recollection that I had spoken directly to Vince.
+
+Later in July 2026 — Slippers Incident
+
+I was walking from the living room to the kitchen. My slippers were sliding on the floor.
+
+Vince said, “You’re sliding/slurping your slippers. Stop that.”
+
+I replied, “I’m just walking.”
+
+Vince responded, “No, you’re not. You’re making noise that disturbs everyone in the whole house.”
+
+Vince then imitated the way I walked. He said, “You’re going like this,” and deliberately walked while making loud noises with his feet to imitate my gait.
+
+That is all I presently remember about this incident.
+
+Later in July 2026 — Facial Expression Incident
+
+I was sitting quietly, thinking.
+
+Vince asked, “Why are you staring at me?”
+
+As he said this, he scrunched his face into an exaggerated expression that looked to me like someone straining with constipation during a bowel movement. I understood him to be imitating my facial expression.
+
+Later, Valentine told me that I had simply appeared to be lost in thought.
+
+Breakfast Timing Incident
+
+I came to breakfast at approximately 8:40 a.m. with Valentine because we believed that was the normal breakfast time.
+
+Vince told us, “You guys always come to breakfast late. It’s not fair to me.”
+
+Internally, I agreed with Vince that it was not fair to him if we were arriving later than expected.
+
+I asked Vince, “When should we come to breakfast?”
+
+He replied, “Eight o’clock.”
+
+For the next several weeks, I made a point of coming to breakfast promptly at 8:00 a.m. out of fairness to Vince.
+
+However, Vince would typically not come into the dining area until around 8:20 or 8:30 a.m. He would go back and forth between the kitchen, his room, and the back door.
+
+As other residents arrived, Vince would serve them before serving me, even though I had arrived at the time he had instructed me to arrive.
+
+When I eventually went into the kitchen, Vince would sometimes say, “Here’s your plate.” By that time, other residents who had arrived much later than I had were often already eating or had already been served individually by name.
+
+I found this confusing because I believed I was following the schedule Vince had instructed me to follow.
+
+Later in July 2026 — Conversation with Austin
+
+I was talking with Austin at the lunch table.
+
+I asked, “How long have you been here?”
+
+He replied, “A couple of days.”
+
+I asked, “How was the transition?”
+
+He replied, “It was pretty good.”
+
+I said, “I just came back from Sacramento. The transitions were pretty difficult.”
+
+He replied, “I was staying in another house.”
+
+I asked, “Oh, how long have you known Phil?”
+
+He replied, “About four days.”
+
+I said, “I don’t understand. If you were at another house, how come you only know Phil for four days?”
+
+He replied, “Oh, I was at the House of Hope.”
+
+At that point, Vince came over to the table. He stood with his fists clenched at his sides and said,
+
+“Alex, never, ever, ever do that again. Do you understand me? We do not ask personal questions in this house. We do not ask where people are from. We do not ask anything personal. Do I make myself clear, Alex?”
+
+He then asked,
+
+“Does this shock you, Alex?”
+
+Vince then referred to Austin and said,
+
+“We are taking care of him, not you. We are handling this, not you.”
+
+I was surprised by his response because I believed I had been engaged in an ordinary conversation with a new resident about his transition to the house. My questions followed naturally from what Austin had told me.
+
+Karaoke Incident
+
+I was watching Elle. Vince was in the kitchen.
+
+A karaoke scene came on. Because I enjoy karaoke, I watched the scene.
+
+While I was watching, the television volume became louder without my noticing it.
+
+Vince came into the room and shouted,
+
+“That’s too damn loud.”
+
+I generally enjoyed watching Elle. Vince generally enjoyed watching professional wrestling.
+
+Meal-Time Phone Audio
+
+During meals, Vince regularly listened to Judge Judy audio on his phone so that everyone in the dining area could hear it.
+
+My impression was that he played the audio at a volume that made it uncomfortable to enjoy the meal.
+
+This stood out to me because, on another occasion, Vince had shouted, “That’s too damn loud,” when the volume of a karaoke scene I was watching had become louder without my noticing it.
+
+It appeared to me that different standards were being applied to intrusive noise.
+
+July 27, 2026 — Emergency Department Visit
+
+I attempted to walk eight miles to Best Buy at approximately 2:00 p.m. in 106-degree weather, carrying two bottles of water. My plan was to have my laptop repaired and then walk eight miles back, for a total of approximately sixteen miles in extreme heat.
+
+After approximately two miles, I was completely exhausted. I put out my thumb to hitchhike, and a Good Samaritan stopped and took me to Best Buy. I was later treated in the emergency department for dehydration.
+
+I have bipolar disorder. I believe that I was hypomanic at the time and was at risk of becoming manic. One symptom of mania can be impaired judgment. Attempting to walk sixteen miles in 106-degree weather at age 62 was an example of extremely poor judgment.
+
+I cannot state that the housing situation directly caused the dehydration or this decision. However, I believe the continuing stress at the residence contributed to my reduced sleep, hypomanic state, impaired judgment, and overall decline in well-being.
+
+July 30, 2026 — Conversation with Charles
+
+Charles told me,
+
+“If Phil says he wants to move you, that means he’s in the process of doing it now.”
+
+Charles then described how residents had been moved in the past. He said that a couple of very large men would come, pack the resident’s belongings, remove them from the residence, and transport them to another location.
+
+Charles also told me about another resident who had been moved out earlier that week.
+
+According to Charles, Phil told the resident,
+
+“You’re moving out.”
+
+Charles said the resident had approximately half an hour to call his girlfriend and pack his belongings. His girlfriend then drove him to his new residence.
+
+Charles told me that, as the resident was leaving, Charles asked,
+
+“Where are you going?”
+
+According to Charles, the resident replied,
+
+“Vince kicked me out.”
+
+Charles responded,
+
+“Sorry to see you go.”
+
+Charles related this incident to explain why he believed that, if Phil decided to move me, the process could happen immediately rather than over a period of days.
+
+I understood this conversation to mean that I was at immediate risk of being removed from the residence. I feared that this could happen that very evening.
+
+Because of that concern, I contacted Adult Protective Services after hours and filed an additional report. I also contacted the San Bernardino Police Department non-emergency line so there would be a contemporaneous record that I feared I might be involuntarily removed from the residence.
+
+July 31, 2026 — Adult Protective Services Visit
+
+An Adult Protective Services caseworker met with me at the residence. During the meeting, Phil, Vince, and I were all present.
+
+During the course of the meeting, Phil introduced himself.
+
+At some point during the meeting, Phil said that he had another place available where I could move.
+
+Over the course of the meeting, Phil and the Adult Protective Services caseworker repeatedly discussed moving to another residence as a possible solution.
+
+Phil said,
+
+“If it were me, and I were having trouble with someone in the house, I would move.”
+
+The caseworker explained that helping me move was the primary form of assistance Adult Protective Services could offer in this situation.
+
+Throughout the meeting, I repeatedly stated that I did not want to move. My recollection is that I expressed this many times, possibly around fifteen times. I consistently explained that my goal was to remain at the residence and resolve the problems rather than relocate.
+
+During the meeting, Vince spoke at length. From my perspective, he became increasingly animated. He gestured frequently and raised numerous complaints.
+
+Among other things, Vince said that I was twisting his words, that I did not respect his authority, that I did not follow the rules, that I acted as though I were in charge of the house, and that he did not have problems with anyone in the house except me.
+
+At one point, Vince said in front of the Adult Protective Services caseworker,
+
+“You always say, ‘Oh, I need my medication. I need my medication.’”
+
+I replied,
+
+“Vince, who told you I take medication? How do you know I take medication? It’s none of your business.”
+
+I do not remember Vince answering those questions. My impression is that he became silent, but I am not certain.
+
+I do not remember anyone responding to Vince’s accusations at the time. My recollection is that the meeting simply continued without discussion of those particular statements.
+
+I found Vince’s statement that he did not have problems with anyone in the house except me difficult to reconcile with information I had previously received from Charles. According to Charles, another resident had been required to leave the residence the previous week.
+
+In addition, other residents have told me that their interactions with Vince have been similar to mine. They told me they generally tolerate the behavior because they do not want to make waves or risk being asked to leave the residence.
+
+August 1, 2026 — Breakfast Water Incident
+
+I arrived promptly for breakfast at approximately 8:00 a.m., consistent with Vince's earlier instruction that I should come to breakfast at 8:00 a.m. "out of fairness to him."
+
+At approximately 8:12 a.m., Vince came into the kitchen, washed dishes, and prepared his coffee.
+
+I began preparing my coffee.
+
+Before I poured water into my cup, Vince said,
+
+"You don't take water. You didn't contribute water. You take water from the sink."
+
+I replied,
+
+"Yes, I do contribute bottled water."
+
+Vince responded,
+
+"You don't contribute any damn water!"
+
+I then filled my coffee cup with tap water.
+
+Enrique entered the kitchen and prepared his coffee.
+
+Vince said to Enrique,
+
+"Enrique, thank you for bringing water."
+
+At that time, I did not observe Enrique bringing bottled water into the kitchen.
+
+Enrique replied,
+
+"Sorry, I'm running low."
+
+Vince responded,
+
+"That's OK."
+
+Austin entered the kitchen for breakfast and prepared his coffee.
+
+I spoke in a voice intended to be audible to Vince and said to Austin,
+
+"I don't have any now, but I've left bottled water outside for everyone to use. Feel free to use it."
+
+I went to the microwave to heat my coffee. The glass turntable tray was not inside the microwave. It was in the dish-drying area next to the sink.
+
+I then observed Austin preparing to use the heated water for his coffee.
+
+Earlier in the same interaction, Vince had directed me to use tap water instead of the heated water.
+
+I poured out my coffee and returned to my room.
+
+Later that morning, I reviewed my field notes. They were consistent with my recollection and did not require any substantive corrections.
+
+I shared my account of the breakfast interaction with Valentine.
+
+I asked Valentine if I could have one of his bottled waters to make my coffee.
+
+Valentine replied,
+
+"Sure."
+
+I returned to the kitchen with the bottled water and placed it on the counter. I took a cup, added instant coffee (Nescafé), and began heating the bottled water.
+
+Vince looked at me and asked,
+
+"What are you doing now?"
+
+I replied,
+
+"I'm heating the water."
+
+Vince said,
+
+"I told you not to use the heater."
+
+I replied,
+
+"You told me to contribute bottled water. I'm doing that. That's what it's for."
+
+Vince asked,
+
+"Do you think I'm stupid?"
+
+Vince then stated that the heater belonged to him, that he was the only person who contributed water, that no one in the house contributed water, that everyone used it without sharing, and that he was tired of it.
+
+I replied,
+
+"I don't think you're stupid."
+
+I then continued making my coffee.
+
+Later in August 2026 — Conversation with Resident A
+
+Following my meeting with APS caseworker Jesus Garcia, Phil Hernandez, owner of Hernandez Room and Board, and Vince, the residence manager, I spoke at length with Resident A, who had witnessed the meeting.
+
+Resident A estimated that approximately 20 residents had left the residence over the past year, averaging about 2 residents per month.
+
+Resident A further estimated that approximately half of those former residents had spoken with him about their experiences after leaving the residence.
+
+According to Resident A, many of those former residents reported that Vince had told each of them that they were the only person in the house with whom he had problems.
+
+Resident A also discussed what he refers to as a “malingering narcissist,” explaining that this is his own descriptive framework based on his reading, his work experience, and his experience living in approximately 14 boarding-house settings. He emphasized that he was expressing his personal observations rather than a recognized psychiatric diagnosis.
+
+Resident A explained that, in his opinion, the requirement that residents provide bottled water for use with the coffee water heater was an example of what he described as financial control, the fifth characteristic in his framework.
+
+Coffee Policies
+
+Resident A and I discussed the policies governing coffee at the residence. Over time, we observed that the rules regarding the preparation and consumption of coffee have changed repeatedly. These changes have included requiring residents to purchase their own instant coffee and, in order to use the hot water heater, their own bottled water.
+
+I pay $900 per month for room and board. In my understanding, “board” includes meals and ordinary beverages. Coffee is a beverage. I therefore questioned why residents are expected to purchase both the instant coffee and the bottled water used to prepare it.
+
+In my experience, cleaning mineral deposits from a hot water heater takes only a few minutes. My interpretation is that the bottled water requirement reduces the need for staff to perform that routine maintenance. This is my interpretation and not a fact that was stated to me by staff.
+
+Resident A and I also shared the impression that the repeated changes to the coffee rules have had the cumulative effect of diminishing the simple enjoyment of drinking coffee by making the process increasingly inconvenient and restrictive. This is our shared interpretation based on our observations over time.
+
+Aug 1,2026
+
+I asked Resident C whether Resident B had told him directly that he had schizophrenia or whether he had learned that information from someone else. Resident C replied that he had learned it from Vince.
+
+If Resident C’s recollection is accurate, I am concerned that confidential medical information may have been disclosed by Vince to Resident C without Resident B’s consent. I do not know whether Resident B consented to this disclosure or whether there were circumstances unknown to me that would explain it. This statement reflects my concern based on what Resident C reported to me.me.
+
+August 3, 2026
+
+This incident occurred earlier today.
+
+At approximately 8:05 a.m., Vince was cooking breakfast. After going to the bathroom and putting away my toilet paper, I sat down at the breakfast table.
+
+Vince made a one-handed shaking gesture toward me. I do not know the correct term for the gesture, but I interpreted it as meaning “shoo.” He said that breakfast would not be ready for 20 minutes and told me to find someplace else.
+
+Approximately 5 minutes later, Vince said that breakfast was ready.
+
 August 20, 2026 — Lunch / Refrigerator Filtered Water
 
 At lunch, the meal provided was Cup Noodles soup.
